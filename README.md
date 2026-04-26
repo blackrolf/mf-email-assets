@@ -1,0 +1,1 @@
+# mf-email-assets
